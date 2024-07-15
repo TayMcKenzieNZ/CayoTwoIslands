@@ -1,7 +1,6 @@
 # CayoTwoIslands 🌴
 
 Noor Nahas is a clown 🤡
-# RPEMOTES
 
 ![CayoTwoIslands](https://cdn.buymeacoffee.com/uploads/rewards/2024-03-25/1/073703_CTI2.png@1200w_0e.png)
 
